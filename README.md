@@ -4,7 +4,7 @@
 
 - 🌱 I’m currently learning **Data Science, Machine Learning**
 
-- 📫 How to reach me **sayantan.stat.99@gmail.com**
+- 📫 You can reach me at- **sayantan.stat.99@gmail.com**
 
 - ⚡ Fun fact **I think i am funny. Their laughter approves**
 
