@@ -7,7 +7,7 @@
 
 - 📫 You can reach me at- **sayantan.stat.99@gmail.com**
 
-- ⚡ Fun fact **I think i am funny. Their laughter approves**
+- ⚡ Fun fact **I am funny and i make memes**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
